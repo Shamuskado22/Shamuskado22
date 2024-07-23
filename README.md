@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Shamuskado22 😁
+## Bem-vindo(a) ao perfil do Samuel Almeida 😁
 
  <div>
    <a href="https://github.com/Shamuskado22">
